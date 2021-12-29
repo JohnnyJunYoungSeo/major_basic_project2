@@ -1,1 +1,0 @@
-# major_basic_project2
